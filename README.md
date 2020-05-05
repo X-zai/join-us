@@ -1,6 +1,6 @@
 Join Us
 ====
-哔哩哔哩弹幕视频网 <http://www.bilibili.com> 需要更多的小伙伴~~
+哔哩哔哩弹幕视频网 <https://www.bilibili.com> 需要更多的小伙伴~~
 ![join us](http://ww3.sinaimg.cn/large/74785e9djw1ej44a166duj20hs0b40tz.jpg)
 
 下列职位工作地点均为: 上海·杨浦区·[政立路国正中心3号楼](http://j.map.baidu.com/X3r2N)
